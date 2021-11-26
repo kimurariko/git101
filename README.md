@@ -18,3 +18,5 @@
 ОOПр
 Niigata
 Sado
+Shibata
+Sanjo
