@@ -17,4 +17,11 @@
 V”­“c
 Oğ
 
+Niigata
+Sado
+Shibata
+Sanjo
+
 ibaraki
+
+
